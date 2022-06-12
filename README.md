@@ -18,17 +18,17 @@ Metas y Necesidades: Le gustaría tener su propio post grado y tener ayudantes d
 
 Frustraciones: Inestabilidad laborar y no tener tiempo personal
 
-### Promedio 
+### Menos Probable 
 
 Persona: Fernanda
 
-Datos personales: Diseñadora recién egresada, 24 años, vive en Ñuñoa
+Datos personales: Estudiante de arte, 24 años, vive en Ñuñoa
 
-Comportamientos y creencias: Le gusta trabajar en equipo, cree en el talento joven y cree en la libertad creativa
+Comportamientos y creencias: Le gusta trabajar en equipo, cree en el talento joven y cree en la libertad creativa. Colecciona prints y gráficas de diseño
 
-Metas y Necesidades: Necesita apoyo en aspectos de diseño que no son su fuerte, tener a su propia editorial
+Metas y Necesidades: Quiere ser una artista reconocida. Necesita inspirarse en redes sociales viendo diseñadores, artistas y músicos.
 
-Frustraciones: Clientes indecisos, diseños mal hechos
+Frustraciones: Fracasar en su carrera, no le gustan las personas que juzgan gustos distintos.
 
 ### Menos Probable
 
